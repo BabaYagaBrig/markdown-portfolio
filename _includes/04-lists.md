@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+Hobbies
+- Table Top Games
+- Video Games
+- Building/Fixing Electronics
+- Snowboarding/Longboarding
+- Spending time with the Family
